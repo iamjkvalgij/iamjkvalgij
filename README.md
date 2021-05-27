@@ -1,1 +1,1 @@
-# 25-year´s old´s, young, hobbyist enterpreur and artist, based in Porvoo, Finland.
+# Young enterpreur and artist, from Porvoo Finland. (EN)
